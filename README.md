@@ -1,4 +1,4 @@
-                       ⎯⠀❐⠀⤬
+⎯⠀❐⠀⤬
 🧁 • https://nxcuz.sellix.io/
 🧁 • https://discord.gg/3VYgQ7gy6D/
 🧁 • __https://cuz.sell.app/__
